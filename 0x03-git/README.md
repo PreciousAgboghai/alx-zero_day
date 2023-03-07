@@ -1,2 +1,2 @@
 Do hard things
->> Growth mindset
+Growth mindset
